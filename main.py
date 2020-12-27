@@ -2,6 +2,7 @@
 Code by: Charanpreet Singh
 Email: Charanmakkar@gmail.com
 Linkedin profile: https://www.linkedin.com/in/charanpreet-singh-a29949133/
+DM @linkedin for query or help (Alway open to share and learn)
 Development date Aug 19, 2020
 Final editing done on Aug 25, 2020
 Github Upload: Dec 27, 2020
