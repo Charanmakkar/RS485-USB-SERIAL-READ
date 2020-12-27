@@ -9,4 +9,5 @@ Will work good in laptop or PC also...
 Need any helpl 
 ping me on my linkedin profile
 linkedin.com/in/charanpreet-singh-a29949133/
+
 Feel free to contact
